@@ -1,1 +1,1 @@
-# aysenurmardin.githup.io
+# aysenurmardin.github.io
